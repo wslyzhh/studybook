@@ -1,1 +1,2 @@
-![image-20210415104701592](C:\Users\18liyz\AppData\Roaming\Typora\typora-user-images\image-20210415104701592.png)
+![image-20210415104701592](../image/image-20210415104701592.png)
+
